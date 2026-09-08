@@ -1,0 +1,1 @@
+# Ashampoo-Winoptimizer-Full-Version
